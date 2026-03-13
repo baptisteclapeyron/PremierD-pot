@@ -1,1 +1,0 @@
-Vivement 2027 y'auras moins d'étrangers dans nos rues.
